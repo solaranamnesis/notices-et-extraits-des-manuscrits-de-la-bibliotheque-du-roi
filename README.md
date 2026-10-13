@@ -1,4 +1,4 @@
-# Notices et extraits des Manuscrits de la Bibliothèque du Roi et autres bibliothèques.
+# Notices et extraits des Manuscrits de la Bibliothèque du Roi.
 
 ## Tome 1.
 
